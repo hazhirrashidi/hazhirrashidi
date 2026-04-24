@@ -48,7 +48,6 @@
 ## 📬 Reach Me  
 
 📧 **Email:** [hzhrrshd@gmail.com](mailto:hzhrrshd@gmail.com)  
-🐦 **X (Twitter):** [@HazhirRashidi](https://twitter.com/HazhirRashidi) *(if I had one!)*  
 
 ---
 
